@@ -14,3 +14,17 @@
 5.
 ![205](https://user-images.githubusercontent.com/72841908/172675738-1fc6da6d-d1ef-4750-96dc-f237f69db7e0.png)
 
+1. Model2
+![206](https://user-images.githubusercontent.com/72841908/172676086-5a3ee5f4-ebb5-483f-954e-a4a25bccc2ff.png)
+
+2.
+![207](https://user-images.githubusercontent.com/72841908/172676181-64d72bbd-1e86-45b8-a9c9-5bcd00500f12.png)
+
+3.
+![208](https://user-images.githubusercontent.com/72841908/172676186-a2d5ca89-70ba-4851-b937-65bc4638ccdd.png)
+
+4.
+![209](https://user-images.githubusercontent.com/72841908/172676201-93fb6cc1-5d23-4013-9070-d32c14560223.png)
+
+5.
+![210](https://user-images.githubusercontent.com/72841908/172676221-33034d4a-2cdc-4023-a7fe-a4140f75137f.png)
